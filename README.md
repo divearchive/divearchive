@@ -1,16 +1,13 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**divearchive/divearchive** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://i.postimg.cc/RV2Ln6s7/dcvkvpx-15d44161-cf36-4c72-96b2-a2a1dd979935.png" width="70" />
 
-Here are some ideas to get you started:
+</div>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+
+**[ata](https://deceitful.atabook.org)**　**[prns](https://en.pronouns.page/@LOVEONE)**
+
+  (♡ˊ͈ ꒳ ˋ͈) 
+  
+  </div>
