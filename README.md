@@ -6,8 +6,9 @@
 
 <div align="center">
 
-**[ata](https://deceitful.atabook.org)**　**[prns](https://en.pronouns.page/@LOVEONE)**
+**[ata](https://deceitful.atabook.org)**　**[straw](https://divearchive.straw.page/)**
+
 
   (♡ˊ͈ ꒳ ˋ͈) 
-  
+    
   </div>
