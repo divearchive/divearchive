@@ -6,7 +6,7 @@
 
 <div align="center">
 
-**[ata](https://deceitful.atabook.org)**　**[straw](https://divearchive.straw.page/)**
+**[ata](https://deceitful.atabook.org)**　**[rentry](https://rentry.co/festiiival)**
 
 
   (♡ˊ͈ ꒳ ˋ͈) 
