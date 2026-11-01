@@ -8,6 +8,8 @@
 
 **[ata](https://virtuallove.atabook.org)**　**[nottie](https://princesoma.pythonanywhere.com/roshambogames)**
 
+**[rentry](https://rentry.co/polysquad)**
+
 
   (♡ˊ͈ ꒳ ˋ͈) 
     
