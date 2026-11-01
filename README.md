@@ -6,9 +6,9 @@
 
 <div align="center">
 
-**[ata](https://virtuallove.atabook.org)**　**[nottie](https://princesoma.pythonanywhere.com/roshambogames)**
+**[rentry](https://rentry.co/polysquad)**　**[nottie](https://princesoma.pythonanywhere.com/roshambogames)**
 
-**[rentry](https://rentry.co/polysquad)**
+**[ata](https://virtuallove.atabook.org)**
 
 
   (♡ˊ͈ ꒳ ˋ͈) 
